@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @glnmrbt444
 - 👀 I’m interested in coding! Gaming/Kpop/Kdramas/Horror Movies/Mystery
-- 🌱 I’m currently learning coding, Japanese, Korean!
+- 🌱 I’m currently learning coding, French, Korean!
 - 💞️ I’m looking to collaborate on fun projects
 - 📫 How to reach me... Discord: li.ana.
 - 😄 Pronouns: She/Her
